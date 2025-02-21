@@ -1,7 +1,7 @@
 👋 Hi, I’m Daniela Medina!
 
-🌱 Always learning | 💡 Passionate about communication & marketing
-✈️ Love traveling & meeting new people around the world
+🌱 Always learning | 💡 Passionate about communication & marketing.
+✈️ Love traveling & meeting new people.
 
 📊 Data Analytics & Visualization | 🎓 Communicator & Publicist
 
